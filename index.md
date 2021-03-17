@@ -1,7 +1,5 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about traditions and mythos
-dfdfghjöäkjkhjg
 Als PDF herunterladen
 Ingo Biermann
 S/4HANA Einführung
